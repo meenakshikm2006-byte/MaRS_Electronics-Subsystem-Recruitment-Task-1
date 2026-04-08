@@ -1,1 +1,0 @@
-# MaRS_Electronics-Subsystem-Recruitment-Task-1
